@@ -2,7 +2,7 @@
 
 1. What colour is Uranus?
    
-   Answer: 
+   Answer: obviously its purple.... cuz purple is awesome.
      
 2. Why was Pluto demoted from being a planet?
 
